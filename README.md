@@ -1,3 +1,5 @@
+![image](https://github.com/ReynoldsWegbebu/ReynoldsWegbebu/assets/90350946/85459408-99ac-4ac7-bc7d-b448f6aa966d)
+
 ### Hi there 👋
 I am Reynolds. The Village boy from the Coast, Ghana
 
